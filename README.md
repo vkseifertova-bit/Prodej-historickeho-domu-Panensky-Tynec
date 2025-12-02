@@ -1,2 +1,2 @@
-# Prodej-historick-ho-domu-Panensk-T-nec
+# Prodej-historickeho domu Panensky Tynec
 Panenský Týnec
